@@ -1,4 +1,4 @@
-_Created by [Wesley Armando "WriterMaster-1Click"](https://poe.com/wesleyarmando/)_
+
 
 ---
 
